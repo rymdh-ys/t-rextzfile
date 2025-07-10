@@ -3,7 +3,7 @@
 
 
 <p><strong>一键访问：</strong><a href="https://www.rymdh.com/sites/14846.html" target="_blank" ><strong>团长资源最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://www.rymdh.com/favorites/yingshizaixiankan" target="_blank" ><strong>影视资源</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://yingshi.xxsnav.com/" target="_blank" ><strong>影视网站大全</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank" ><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 
 ### 功能特点
